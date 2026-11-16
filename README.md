@@ -11,7 +11,7 @@
 
 - 👨‍💻 Explore my projects at [https://pststha.github.io/Portfolio](https://pststha.github.io/Portfolio)
 
-- 📄 Check out my professional experience in my [Resume/CV](https://www.canva.com/design/DAFiHtrGwGA/gKGgCvzHNDctyBY9LEc2_g/view?utm_content=DAFiHtrGwGA&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)
+- 📄 Check out my professional experience in my [Resume/CV](https://drive.google.com/file/d/17nXQLVGh_DG8dXsTMZSEGhYii7jZCXpl/view?usp=sharing)
 
 - 📫 How to reach me **Pst.stha123456@gmail.com**
 
